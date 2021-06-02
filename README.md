@@ -73,7 +73,7 @@ Since the lifecycle is so consistent and flat week to week, inventory liability 
 
 Contact
 Alex Pinkerton
-axpinkerton@gmail.com
+
 
 www.linkedin.com/in/alexanderpinkerton
 
